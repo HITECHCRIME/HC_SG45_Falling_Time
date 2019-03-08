@@ -8,7 +8,7 @@ i can feel it coming on and on
 coming on and on
 on and on
 on and on
-eyyyyaa
+eyyyyaau
 
 on and on 
 
