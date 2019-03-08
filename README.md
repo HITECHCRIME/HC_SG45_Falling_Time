@@ -10,7 +10,7 @@ on and on
 on and on
 eyyyyaa
 
-on and and 
+on and on 
 
 going alone
 
