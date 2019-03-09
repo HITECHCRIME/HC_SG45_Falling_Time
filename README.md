@@ -10,6 +10,9 @@ or did i, can never be sure
 of what is clear
 never sure what the passing sand will bring
 feeling's here
+still the same
+
+what a nice thing to see
 
 yeah
 
