@@ -67,6 +67,6 @@ deep voice
 feeling's here
 still the same
 
-eyaaa-aaau
+eyaaa-aaa-u
 
 on and on
