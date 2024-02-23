@@ -4,7 +4,7 @@ Beat: https://www.youtube.com/watch?v=tQ87meREIEo
 
 | FREE | Sad Piano Instrumental \\ Phora ft. 6lack Type Beat "Nearly" (Prod. Aksil Beats)
 
-
+peace to all who direct their fire within
 
 found myself what i truly want
 or did i, can never be sure 
